@@ -76,3 +76,86 @@ https://articulo.mercadolibre.com.mx/MLM-1890548849-juego-6-pz-aros-para-emplata
 
  [![3-AROS-ACERO-INOXIDABLES-6-PZ-VARIOS-TAMA-OS.png](https://i.postimg.cc/fTLpmpFb/3-AROS-ACERO-INOXIDABLES-6-PZ-VARIOS-TAMA-OS.png)](https://postimg.cc/BtrmGYJW)
 
+CALIENTE
+
+3 PELADORES $109 X 3 = $327 (3 PZ)
+https://www.mercadolibre.com.mx/pelapapas-negro-victorinox-760733/p/MLM24652059#searchVariation=MLM24652059&position=17&search_layout=grid&type=product&tracking_id=85b51afe-9585-4902-9266-fad35a48a7a6
+
+[![1-PELADORES.png](https://i.postimg.cc/fyw0L7kp/1-PELADORES.png)](https://postimg.cc/ph6dcFfJ)
+
+2 SARTENES TEFLON CHICOS 20 CM X 5 CM ANTIADHERENTE $499 X 2 = $998 (2 PZ)
+https://www.mercadolibre.com.mx/sarten-profesional-alpro-aluminio-antiadherente-20-x-5-cm/p/MLM28488151?pdp_filters=item_id:MLM2713670054#is_advertising=true&searchVariation=MLM28488151&position=10&search_layout=grid&type=pad&tracking_id=057c979d-fc4a-4a63-a79c-7554cb2cc09f&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=10&ad_click_id=MjJkNzExMDUtMzY0Mi00YjY1LWJkYTMtYjU1N2ZlNWFiNmRj
+
+[![2-SARTE-DE-TEFLON-CHICO.png](https://i.postimg.cc/ZqGM1n0C/2-SARTE-DE-TEFLON-CHICO.png)](https://postimg.cc/sBJmWVYr)
+
+2 SARTENES DE TEFLON MEDIANOS 26 CM $493 X2 = $986 (2 PZ)
+https://www.mercadolibre.com.mx/sarten-antiadherente-alpro-26cm-aluminio-tricapa-color-plateado/p/MLM28087181#searchVariation=MLM28087181&position=3&search_layout=grid&type=product&tracking_id=9d5a4bae-d8ef-4f26-9208-e9795ae1da79
+
+[![3-SARTEN-DE-TEFLON-MEDIANO.png](https://i.postimg.cc/GhdZL4KD/3-SARTEN-DE-TEFLON-MEDIANO.png)](https://postimg.cc/WtY9SbQp)
+
+1 RALLADOR DE QUESO $139 (1 PZ)
+https://www.mercadolibre.com.mx/rallador-queso-verdura-4-cortes-acero-inoxidable/p/MLM27540636#searchVariation=MLM27540636&position=19&search_layout=grid&type=product&tracking_id=931dd3fb-b550-44de-a612-2572eabf8b80
+
+[![4-RALLADOR.png](https://i.postimg.cc/LXZM1GgZ/4-RALLADOR.png)](https://postimg.cc/dkvXMHBq)
+
+1 ABRELATA $226 (1 PZ)
+https://www.mercadolibre.com.mx/abrelatas-destapador-manivela-acero-inoxidable-profesional/p/MLM26339823#searchVariation=MLM26339823&position=14&search_layout=grid&type=product&tracking_id=acd4b016-6aa9-491d-9f07-eaf88faa17fd
+
+[![4-RALLADOR.png](https://i.postimg.cc/LXZM1GgZ/4-RALLADOR.png)](https://postimg.cc/dkvXMHBq)
+
+2 CANASTA PARA FREIDORA $621 X 2 = $1242  (2 PZ)
+https://articulo.mercadolibre.com.mx/MLM-2066835695-canasta-freidora-rectangular-33-x-16-cm-acero-inoxidable-m5-_JM#is_advertising=true&position=9&search_layout=stack&type=pad&tracking_id=f166a3c8-557a-456c-affb-7187f6d236c7&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=9&ad_click_id=YTgwZjA0ODMtOTk3ZC00YzY1LWJjNmUtY2MzMzFkYzAwMmJm
+
+[![6-CANASTA-DE-FREIDORA.png](https://i.postimg.cc/R0g0dr0s/6-CANASTA-DE-FREIDORA.png)](https://postimg.cc/7CTDPW00)
+ 
+12 INSERTOS NOVENOS $109 X 12 = $1308 (12 PZ)
+https://articulo.mercadolibre.com.mx/MLM-700249975-inserto-contenedor-ac-inox-noveno-4-pulgadas-inan-4-comprosi-_JM#is_advertising=true&position=11&search_layout=grid&type=pad&tracking_id=91e8dbf8-d8b7-4823-8c12-3c9ef498abf4&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=11&ad_click_id=YjhmY2VjOTUtNGYwNi00NDRkLTg3NWMtZDI2NGY5MmFhMzMz
+
+[![7-INSERTOS-NOVENOS.png](https://i.postimg.cc/mrL3XFYb/7-INSERTOS-NOVENOS.png)](https://postimg.cc/SnPzjR15)
+
+4 INSERTOS ACERO INOX 1/2 X 15 CM $298 X 4 =$1192  (4 PZ)
+https://www.mercadolibre.com.mx/inserto-contenedor-de-acero-inoxidable-12x15cm-arol-con-nsf/p/MLM25925987?pdp_filters=item_id:MLM1933967805#polycard_client=recommendations_vip-pads-up&reco_backend=vip_pads_up_ranker_retrieval_system_odin_marketplace&reco_client=vip-pads-up&reco_item_pos=1&reco_backend_type=low_level&reco_id=fbd7b878-5b00-40d5-82de-68bd5e48442c&wid=MLM1933967805&sid=recos&is_advertising=true&ad_domain=VIPDESKTOP_UP&ad_position=2&ad_click_id=NjRlMWY0NTAtNWUxNS00Mjg1LWFjZDItZGFmMjEwZDJhYTc5
+
+[![8-INSERTOS-RECTANGULARES.png](https://i.postimg.cc/Thv21fkw/8-INSERTOS-RECTANGULARES.png)](https://postimg.cc/V04PHQPQ)
+
+1 CEPILLO LARGO PARA PARRILLA $1803  (1 PZ)
+https://www.mercadolibre.com.mx/27-largo-cepillo-de-limpieza-alambre-para-asador-parrilla/p/MLM21175711#searchVariation=MLM21175711&position=2&search_layout=grid&type=product&tracking_id=453c465e-2744-4949-a702-be20d881f263
+
+[![9-CEPILLO-LARGO-DE-PARRILLA.png](https://i.postimg.cc/QdrJ7zVK/9-CEPILLO-LARGO-DE-PARRILLA.png)](https://postimg.cc/fJBdnBcM)
+
+1 CENTRIFUGO DE LECHUGAS $350 (1 PZ)
+https://www.mercadolibre.com.mx/centrifugador-de-lechuga-5l-escurridor-verdura-y-fruta/p/MLM32430262#searchVariation=MLM32430262&position=6&search_layout=grid&type=product&tracking_id=273ad95e-bf4b-4289-9cc6-26ee46439f9b
+
+[![10-CENTRIFUGO-DE-LECHUGA.png](https://i.postimg.cc/1zh2fM1v/10-CENTRIFUGO-DE-LECHUGA.png)](https://postimg.cc/pmCqSfTj)
+
+1 PASA PURE $432 (1 PZ)
+https://articulo.mercadolibre.com.mx/MLM-3092917928-pasa-de-acero-inoxidable-con-3-discos-de-19-cm-para-exprimid-_JM#position=5&search_layout=grid&type=item&tracking_id=7b2109fc-936f-45a9-8f73-7fc9df0e9a0c
+
+[![11-PASA-PURE.png](https://i.postimg.cc/66mH8zdC/11-PASA-PURE.png)](https://postimg.cc/4npvM623)
+
+1 PIEDRA DE AFILAR 2 CARAS $390 
+https://articulo.mercadolibre.com.mx/MLM-2031471735-piedra-de-afilar-2-caras-8-plg-x-2-plg-marca-crestware-_JM#position=29&search_layout=grid&type=item&tracking_id=c139c7f6-0429-4e94-a5ff-22a707eb8638
+
+[![13-PIEDRA-DE-AFILAR.png](https://i.postimg.cc/0jTdcWf3/13-PIEDRA-DE-AFILAR.png)](https://postimg.cc/PvMwqM0z)
+
+4 JALADORES DE MANO $106 X 4 = $404 (4 PZ)
+https://www.mercadolibre.com.mx/jalador-de-acero-inoxidable-para-vidrio-castor-45-cm/p/MLM26917442#searchVariation=MLM26917442&position=6&search_layout=grid&type=product&tracking_id=bc0d0684-dc4c-4331-b241-bd23abdc5f40
+
+[![12-JALADOR-DE-MANO.png](https://i.postimg.cc/nc93B7kg/12-JALADOR-DE-MANO.png)](https://postimg.cc/vcM7d4Ct)
+
+DESAYUNO
+
+2 ESPATULA ESTILO PINTOR $100 X2 = $200 (2 PZ)
+https://www.mercadolibre.com.mx/espatula-flexible-ace-inox-4-truper-15852/p/MLM29328002#searchVariation=MLM29328002&position=8&search_layout=grid&type=product&tracking_id=da71c5fa-471a-4805-b418-2de016ea3d4c
+
+[![15-ESPATULA-PINTOR.png](https://i.postimg.cc/TPkt6c07/15-ESPATULA-PINTOR.png)](https://postimg.cc/v1Vr7fpf)
+
+2 ESPATULAS PARA VOLTEAR HUEVO $175 X2 = $350 (2 PZ)
+https://www.mercadolibre.com.mx/espatula-volteadora-larga-perforada-acero-inoxidable-color-negro/p/MLM24441747#searchVariation=MLM24441747&position=7&search_layout=grid&type=product&tracking_id=eae88bf5-8e3e-4b84-b46b-ff1bdb30ac56
+
+[![14-ESPATULA-LARGA-VOLTEADORA.png](https://i.postimg.cc/ZRyLpzP3/14-ESPATULA-LARGA-VOLTEADORA.png)](https://postimg.cc/BL4DfyVQ)
+
+2 MISERABLES DE SILICONA $109 (3 PZ)
+https://articulo.mercadolibre.com.mx/MLM-1921540453-3pc-de-silicon-cocina-reposteria-215cm-pala-espatula-_JM#is_advertising=true&position=1&search_layout=grid&type=pad&tracking_id=8319b1ae-f9d0-4ebd-a234-bc6aa823777f&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=1&ad_click_id=ZDYyZTY4NjYtNzkyYi00ZTEwLTgxNWUtNDdhOWZmMmE2MjM5
+
+[![16-MISERABLES.png](https://i.postimg.cc/k5GsMbBT/16-MISERABLES.png)](https://postimg.cc/Z9kpV0PN)
