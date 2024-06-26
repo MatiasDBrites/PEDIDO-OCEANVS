@@ -57,3 +57,22 @@ https://articulo.mercadolibre.com.mx/MLM-2015561339-set-3-espatulas-raspa-alisad
 
 [![9-Espatula-de-Metal.png](https://i.postimg.cc/Wz7XMH17/9-Espatula-de-Metal.png)](https://postimg.cc/9wrd21T4)
 
+FRIA
+
+5 Cuchillos de chef $593X 2 = $1186 ( 2 JUEGOS )
+https://www.mercadolibre.com.mx/juego-de-cuchillos-tramontina-churrasco-24699825-4-piezas/p/MLM27379423#searchVariation=MLM27379423&position=8&search_layout=grid&type=product&tracking_id=23070f86-badc-4ce1-b91c-e03867856fd6
+
+[![1-JUEGO-DE-CUCHILLOS.png](https://i.postimg.cc/J4rmgpFw/1-JUEGO-DE-CUCHILLOS.png)](https://postimg.cc/YjsJLzk8)
+
+30 TAZONES PARA COCKTEL (PENDIENTE DE VER)
+
+20 MAMILAS DE 600 ML $379 X 2 = $758 ( 20 PZ )
+https://articulo.mercadolibre.com.mx/MLM-907521421-10-mamila-de-cocina-para-salsa-500-ml-_JM#is_advertising=true&position=1&search_layout=grid&type=pad&tracking_id=06db509c-4ea8-47b8-9a15-d657ca3feceb&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=1&ad_click_id=YzlkNDEwZGMtNTRiNS00M2Q2LTk3ZmYtOGViMjU3ZjE2MDRj
+
+[![2-MAMILAS-600-ML.png](https://i.postimg.cc/XNxtZ4sh/2-MAMILAS-600-ML.png)](https://postimg.cc/MXM9N22b)
+
+5 AROS DE ACERO INOXIDABLE TIPO MOLDES DISTINTAS MEDIDAS $434 (1 JUEGO DE 6  AROS)
+https://articulo.mercadolibre.com.mx/MLM-1890548849-juego-6-pz-aros-para-emplatar-reposteria-acero-inoxidable-_JM#position=18&search_layout=grid&type=item&tracking_id=b14f1d61-7ffe-4020-a181-4d579ace75c9
+
+ [![3-AROS-ACERO-INOXIDABLES-6-PZ-VARIOS-TAMA-OS.png](https://i.postimg.cc/fTLpmpFb/3-AROS-ACERO-INOXIDABLES-6-PZ-VARIOS-TAMA-OS.png)](https://postimg.cc/BtrmGYJW)
+
