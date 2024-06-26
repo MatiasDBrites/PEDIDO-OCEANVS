@@ -101,7 +101,7 @@ https://www.mercadolibre.com.mx/rallador-queso-verdura-4-cortes-acero-inoxidable
 1 ABRELATA $226 (1 PZ)
 https://www.mercadolibre.com.mx/abrelatas-destapador-manivela-acero-inoxidable-profesional/p/MLM26339823#searchVariation=MLM26339823&position=14&search_layout=grid&type=product&tracking_id=acd4b016-6aa9-491d-9f07-eaf88faa17fd
 
-[![4-RALLADOR.png](https://i.postimg.cc/LXZM1GgZ/4-RALLADOR.png)](https://postimg.cc/dkvXMHBq)
+[![5-ABRELATAS.png](https://i.postimg.cc/jdcBLR3F/5-ABRELATAS.png)](https://postimg.cc/D8WxN3Tr)
 
 2 CANASTA PARA FREIDORA $621 X 2 = $1242  (2 PZ)
 https://articulo.mercadolibre.com.mx/MLM-2066835695-canasta-freidora-rectangular-33-x-16-cm-acero-inoxidable-m5-_JM#is_advertising=true&position=9&search_layout=stack&type=pad&tracking_id=f166a3c8-557a-456c-affb-7187f6d236c7&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=9&ad_click_id=YTgwZjA0ODMtOTk3ZC00YzY1LWJjNmUtY2MzMzFkYzAwMmJm
