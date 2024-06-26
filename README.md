@@ -155,7 +155,7 @@ https://www.mercadolibre.com.mx/espatula-volteadora-larga-perforada-acero-inoxid
 
 [![14-ESPATULA-LARGA-VOLTEADORA.png](https://i.postimg.cc/ZRyLpzP3/14-ESPATULA-LARGA-VOLTEADORA.png)](https://postimg.cc/BL4DfyVQ)
 
-2 MISERABLES DE SILICONA $109 (3 PZ)
-https://articulo.mercadolibre.com.mx/MLM-1921540453-3pc-de-silicon-cocina-reposteria-215cm-pala-espatula-_JM#is_advertising=true&position=1&search_layout=grid&type=pad&tracking_id=8319b1ae-f9d0-4ebd-a234-bc6aa823777f&is_advertising=true&ad_domain=VQCATCORE_LST&ad_position=1&ad_click_id=ZDYyZTY4NjYtNzkyYi00ZTEwLTgxNWUtNDdhOWZmMmE2MjM5
+2 MISERABLES DE SILICONA $210 (2 PZ)
+https://www.mercadolibre.com.mx/set-espatula-miserable-profesional-altas-temperaturas-260-c-color-rojo/p/MLM24280699#searchVariation=MLM24280699&position=4&search_layout=grid&type=product&tracking_id=42a29800-2043-49da-bf9e-0646eb85919e
 
-[![16-MISERABLES.png](https://i.postimg.cc/k5GsMbBT/16-MISERABLES.png)](https://postimg.cc/Z9kpV0PN)
+[![16b-Miserables.png](https://i.postimg.cc/SKscNW1J/16b-Miserables.png)](https://postimg.cc/pmwmsnHH)
